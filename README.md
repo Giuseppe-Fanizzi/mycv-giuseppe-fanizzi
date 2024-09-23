@@ -16,7 +16,7 @@ Nel mio ruolo di Manager Back Office, ero responsabile della supervisione e coor
 Come fotografo professionista specializzato in cerimonie ed eventi, ho avuto l'opportunità di catturare momenti unici e indimenticabili, trasformandoli in ricordi visivi duraturi.Mi sono occupato anche della post-produzione delle immagini, curando ogni dettaglio per offrire ai miei clienti un servizio fotografico completo e personalizzato.
 
 ---
-+ ciao
+
 
 ## 📚 Istruzione
 
