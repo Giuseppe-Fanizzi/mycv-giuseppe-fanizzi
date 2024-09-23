@@ -1,6 +1,7 @@
 # GIUSEPPE FANIZZI
 Bari | [Email](giuseppe.fanizzi.15@gmail.com) | [LinkedIn](https://www.linkedin.com/in/giuseppe-fanizzi-a6b538201/) |
 ![immagine di profilo](https://github.com/user-attachments/assets/ff693358-78c7-4aea-a741-fc61313cd9e8)
+<img src="URL-dell-immagine" alt="Descrizione dell'immagine" width="300"/>
 ---
 
 ## 💼 Esperienza Lavorativa - Fanizzi Gomme
