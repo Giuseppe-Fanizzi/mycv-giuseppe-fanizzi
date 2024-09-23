@@ -20,4 +20,12 @@ Come fotografo professionista specializzato in cerimonie ed eventi, ho avuto l'o
 ## 📚 Istruzione
 
 ### Diploma di specializzazione in musica - Liceo don Lorenzo Milani  
+**sett 2010 - jun 2015**
+
+## 🌐 Lingue
+
+---
+
+- **Italiano**: Madrelingua
+- **Inglese**: Livello B2
 
