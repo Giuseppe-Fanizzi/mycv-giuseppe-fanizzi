@@ -1,6 +1,6 @@
 # GIUSEPPE FANIZZI
 Bari | [Email](giuseppe.fanizzi.15@gmail.com) | [LinkedIn](https://www.linkedin.com/in/giuseppe-fanizzi-a6b538201/) |
-![immagine di profilo](https://github.com/user-attachments/assets/12ec6c0a-2901-4b6f-8050-077980951215)
+![immagine di profilo](https://github.com/user-attachments/assets/b99f6391-1497-4792-ad8d-f4038d894b08)
 
 ---
 
@@ -16,4 +16,5 @@ Nel mio ruolo di Manager Back Office, ero responsabile della supervisione e coor
 Come fotografo professionista specializzato in cerimonie ed eventi, ho avuto l'opportunità di catturare momenti unici e indimenticabili, trasformandoli in ricordi visivi duraturi.Mi sono occupato anche della post-produzione delle immagini, curando ogni dettaglio per offrire ai miei clienti un servizio fotografico completo e personalizzato.
 
 ---
+
 
