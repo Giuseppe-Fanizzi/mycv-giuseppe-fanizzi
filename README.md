@@ -20,10 +20,4 @@ Come fotografo professionista specializzato in cerimonie ed eventi, ho avuto l'o
 ## 📚 Istruzione
 
 ### Diploma di specializzazione in musica - Liceo don Lorenzo Milani  
-**Data di inizio - Data di fine**  
-Breve descrizione del corso e delle competenze acquisite.
-
-### Nome di un eventuale master o corso di specializzazione  
-**Data di inizio - Data di fine**  
-Breve descrizione del corso e delle competenze acquisite.
 
