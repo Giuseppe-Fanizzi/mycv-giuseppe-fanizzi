@@ -24,8 +24,9 @@ Come fotografo professionista specializzato in cerimonie ed eventi, ho avuto l'o
 
 ## 🌐 Lingue
 
----
 
 - **Italiano**: Madrelingua
 - **Inglese**: Livello B2
+
+---
 
