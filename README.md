@@ -1,6 +1,6 @@
 # GIUSEPPE FANIZZI
-Bari | [Email](giuseppe.fanizzi.15@gmail.com) | [LinkedIn](https://www.linkedin.com/in/giuseppe-fanizzi-a6b538201/) |
 ![immagine di profilo](https://github.com/user-attachments/assets/b99f6391-1497-4792-ad8d-f4038d894b08)
+Bari | [Email](giuseppe.fanizzi.15@gmail.com) | [LinkedIn](https://www.linkedin.com/in/giuseppe-fanizzi-a6b538201/) |
 
 ---
 
