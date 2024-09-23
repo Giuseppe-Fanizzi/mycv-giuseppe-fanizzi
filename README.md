@@ -1,6 +1,6 @@
 # GIUSEPPE FANIZZI
 ![immagine di profilo](https://github.com/user-attachments/assets/b99f6391-1497-4792-ad8d-f4038d894b08)
-Bari | [Email](giuseppe.fanizzi.15@gmail.com) | [LinkedIn](https://www.linkedin.com/in/giuseppe-fanizzi-a6b538201/) |
+Bari | 15.04.1996 | [Email](giuseppe.fanizzi.15@gmail.com) | [LinkedIn](https://www.linkedin.com/in/giuseppe-fanizzi-a6b538201/) |
 
 ---
 
@@ -17,4 +17,13 @@ Come fotografo professionista specializzato in cerimonie ed eventi, ho avuto l'o
 
 ---
 
+## 📚 Istruzione
+
+### Diploma di specializzazione in musica - Liceo don Lorenzo Milani  
+**Data di inizio - Data di fine**  
+Breve descrizione del corso e delle competenze acquisite.
+
+### Nome di un eventuale master o corso di specializzazione  
+**Data di inizio - Data di fine**  
+Breve descrizione del corso e delle competenze acquisite.
 
